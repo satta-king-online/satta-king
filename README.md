@@ -3,3 +3,5 @@
 If you want to get the complete code of online play satta app
 you can contact 9646713204
 or visit  : https://satta-king-online.com/
+
+We are developing app of saata king online play, satta king android app.
